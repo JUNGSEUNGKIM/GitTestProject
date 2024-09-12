@@ -1,9 +1,5 @@
 test
 test444444
 dkdjskf
-dlki
-jdksafjlds
-ㅇㅇㅇㄴㄴㄹㄷㅈㅁ
+ㅁ
 ㅁㅇㄹㅁㅇㄴㄹ
-ㅇㅁㄴㄹㄷㅁ
-ㅇㄹㅁㅇㄴ
